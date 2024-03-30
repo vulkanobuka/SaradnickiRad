@@ -3,4 +3,4 @@
 
 ## Ispod kolega Zoki dodaj nesto
 
-### Pozdrav ya Vranje!
+### Pozdrav za Vranje!
